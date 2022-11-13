@@ -1,2 +1,2 @@
-# My Hubble Beggings
+# My Hubble Beginnings
  
